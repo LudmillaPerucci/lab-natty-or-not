@@ -72,6 +72,5 @@ A Inteligência Artificial está redefinindo a era digital em várias frentes, d
 
 Esperamos que este eBook tenha proporcionado uma visão abrangente dos ganhos que a IA traz para a era digital. Continue explorando e descobrindo como essa tecnologia pode transformar o seu mundo.
 
-Para mais recursos e informações, visite [nosso site](https://www.exemplo.com).
 
 ---
